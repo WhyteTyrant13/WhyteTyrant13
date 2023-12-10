@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WhyteTyrant13
+- 👀 I’m interested in Pragramming, Sports, Hanging out with people etc
+- 🌱 I’m currently learning Java, Python
+- 💞️ I’m looking to collaborate on Game and App Development Brainstorming
+- 📫 How to reach me vaishanth34501@gmail.com (im sure no one will want to reach out to me anyway lol)
