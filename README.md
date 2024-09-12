@@ -2,4 +2,4 @@
 - 👀 I’m interested in Pragramming, Sports, Hanging out with people etc
 - 🌱 I’m currently learning Java, Python
 - 💞️ I’m looking to collaborate on Game and App Development Brainstorming
-- 📫 How to reach me vaishanth34501@gmail.com (i
+- 📫 How to reach me vaishanth34501@gmail.com 
